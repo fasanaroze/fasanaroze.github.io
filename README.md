@@ -1,1 +1,0 @@
-# fasanaroze.github.io
